@@ -1,0 +1,2 @@
+# ismail
+Hello, Sir/ Mam❁ I'm a dedicated Digital Marketing consultant and Social Media Marketing specialist with almost 5 years of experience. I have worked on many different types of websites in several industries and I am proficient in many SEO and content marketing-related skills Link building, Backlink, Guest post, competitive analysis, SEO audits, Social media marketing (Instagram, Twitter, Facebook). project management and more.
